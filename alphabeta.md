@@ -28,6 +28,8 @@ https://www.youtube.com/watch?v=GkB4vW16QHI
 
 https://www.youtube.com/watch?v=QQPz3eXXgQI
 
+This stuff makes me sad but I am ready to fight this hella dragon 
+https://ami.lnu.edu.ua/wp-content/uploads/2018/05/%D0%92%D0%B8%D0%BC%D0%BE%D0%B3%D0%B8_%D0%B4%D0%BE_%D0%9C%D0%B0%D0%B3i%D1%81%D1%82%D0%B5%D1%80%D1%81%D1%8C%D0%BA%D0%B8%D1%85_%D1%82%D0%B0_%D0%9A%D1%83%D1%80%D1%81%D0%BE%D0%B2%D0%B8%D1%85-2018.pdf
 
 
 
